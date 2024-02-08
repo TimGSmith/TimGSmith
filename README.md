@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that blend creativity with functionality, sparking meaningful connections with users.
 
-📫 How to reach me: Drop me an email at timgsmith@outlook.com.
+📫 How to reach me: Drop me an email at tgsmith92@outlook.com.
 
 😄 Pronouns: He/Him
 
